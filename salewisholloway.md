@@ -1,4 +1,10 @@
-Stacy Holloway, Test Edit 
-Juarez HS, Demo School
+Stacy Holloway  
+Juarez HS  
+Michelle Zietlow  
+Huntley HS
+Test Edit Name
+Demo School
 
-Doritos, Ice cream
+Doritos  
+Flamin Hot Cheetos
+Ice Cream
