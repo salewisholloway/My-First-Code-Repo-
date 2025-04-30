@@ -1,4 +1,4 @@
-Stacy Holloway  
-Juarez HS
+Stacy Holloway, Test Edit 
+Juarez HS, Demo School
 
-Doritos
+Doritos, Ice cream
