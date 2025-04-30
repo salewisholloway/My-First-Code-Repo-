@@ -1,4 +1,7 @@
 Stacy Holloway  
-Juarez HS
+Juarez HS  
+Michelle Zietlow  
+Huntley HS
 
-Doritos
+Doritos  
+Flamin Hot Cheetos
